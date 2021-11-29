@@ -1,0 +1,1 @@
+# Recolher_Texto
